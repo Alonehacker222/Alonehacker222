@@ -5,6 +5,6 @@
 - 📫 How to reach me india mh-401103...
 
 <!---
-Alonehacker222/Alonehacker222 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+stranger_08/stranger_08 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
